@@ -10,3 +10,6 @@ lalalalalalla
 here we go again
 
 Hoje é dia 15/10/19 e vamos assistir video-aula
+
+
+Já joguei no repositório online XD
